@@ -1,0 +1,2 @@
+# Tez-Yoz
+Amaliyot
